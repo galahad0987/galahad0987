@@ -4,4 +4,4 @@
 
 Here are some ideas to get you started:
 
-![.]https://media.tenor.com/VF9zWXvZ1isAAAAj/bolsonaro2022-jair-bolsonaro.gif)
+![]https://media.tenor.com/VF9zWXvZ1isAAAAj/bolsonaro2022-jair-bolsonaro.gif)
